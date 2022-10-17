@@ -5,6 +5,6 @@ __В данном репозитории нет ничего особенног�
 
 
 
-# Nothing Personal, just ~~ITMO~~ *Business*
+# Nothing Personal, just ~~ITMO~~[ *Business*](https://victorymuseum.ru/upload/resize_cache/iblock/e91/600_1000_1/IMG_8038.jpg)
 
 
